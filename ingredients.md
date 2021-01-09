@@ -6,6 +6,4 @@
 - 1 cup crisco
 - 3/4 cup brown sugar
 - 3/4 cup white sugar
-- 2 eggus
-- 1/2 teaspoon vanilla
-- 6 oz. semi-sweet chocolate chips
+
